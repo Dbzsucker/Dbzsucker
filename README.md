@@ -1,0 +1,4 @@
+-  Hi, I’m @Dbzsucker
+-  I’m interested in dbz and fortnite
+-  I’m currently learning how to get over depression
+-  Heres my email so you can reach out to me naruto1111618@gmail.com
